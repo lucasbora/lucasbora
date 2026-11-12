@@ -1,4 +1,4 @@
-## hey hey im lucas and im here to work work work :#
+we're all just ants from up there
 
 <!--
 **lucasbora/lucasbora** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
